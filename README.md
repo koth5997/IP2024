@@ -6,3 +6,7 @@
 
 
 ##  homework 2
+
+
+## homework 3
+![image](https://github.com/user-attachments/assets/fb094b30-dde5-4b7d-b728-56e1a59619a9)
