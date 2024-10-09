@@ -9,7 +9,11 @@ https://github.com/user-attachments/assets/1269e48f-162c-48ef-8ae4-eda5e16b7646
 ##  homework 2
 
 
-Uploading result 2024-10-09 21-34-24.mp4…
+
+Uploading homework2결과.mp4…
+
+
+
 
 
 
