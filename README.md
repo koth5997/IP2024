@@ -22,3 +22,7 @@ https://github.com/user-attachments/assets/97cf0f79-f5f4-4a33-86b8-84f50ab94b48
 
 ## homework 3
 ![image](https://github.com/user-attachments/assets/fb094b30-dde5-4b7d-b728-56e1a59619a9)
+
+
+## homework 4
+![image](https://github.com/user-attachments/assets/36e3688a-c58d-4e16-97b0-7b41115dfb90)
